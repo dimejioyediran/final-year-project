@@ -31,5 +31,5 @@ This research highlights the importance of CSR in building consumer loyalty and 
 ## Author
 
 **Oladimeji Oyediran**  
-[LinkedIn Profile](https://www.linkedin.com/in/oladimeji-oyediran-657658238)  
+[LinkedIn](https://www.linkedin.com/in/oladimeji-oyediran-657658238)  
 dimejioyemarky@gmail.com
